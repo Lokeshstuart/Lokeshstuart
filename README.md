@@ -1,0 +1,5 @@
+- Hi N.LOKESHKUMAR
+- Interested in web development
+- Looking to work with new peoples
+- Knowledge in angular
+- Having skills [ HTML,CSS,JAVASCRIPT,BOOTSTAP AND CANVA]
